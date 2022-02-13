@@ -1,5 +1,5 @@
 - ✌️ Hi, Tôi là Trường Giang 
-- 👀 Tôi đang quan tâm đến một bạn ♈
+- 👀 Tôi đang quan tâm đến một bạn 
 - 😴 Ngủ từ 1h - 9h sáng
 - 💞️ Đang tìm hiểu (Không nói)
 - 🎮 Tôi thích chơi game giải trí khi buồn stress
